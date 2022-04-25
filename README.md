@@ -1,2 +1,1 @@
--Hola! soy Juan Cruz Isola
--soy de 4° 2° Avionica comisión B
+-Hola! soy Juan Cruz Isola y soy de 4° 2° Avionica comisión B
