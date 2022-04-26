@@ -2,6 +2,6 @@
 
 # Acerca de mi
 
-
-
--Soy de 4° 2° Avionica comisión B
+>Me llamo Juan Cruz Isola
+>Soy de 4 2 avionica
+>
