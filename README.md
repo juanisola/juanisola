@@ -1,4 +1,4 @@
-![github.png](https://i.postimg.cc/J7KLGygB/github.png)](https://postimg.cc/5jHGrtfx)
+![github.png](https://i.postimg.cc/J7KLGygB/github.png)
 
 -Hola! soy Juan Cruz Isola 
 
