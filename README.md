@@ -2,7 +2,7 @@
 
 # Acerca de mi
 
->Me llamo Juan Cruz Isola
+>**Me llamo Juan Cruz Isola**
 
->Soy de 4 2 avionica
+>**Soy de 4 2 avionica**
 >
