@@ -1,4 +1,4 @@
-![](file:///C:/Users/Juan/Pictures/github.png)
+![github.png](https://i.postimg.cc/J7KLGygB/github.png)](https://postimg.cc/5jHGrtfx)
 
 -Hola! soy Juan Cruz Isola 
 
