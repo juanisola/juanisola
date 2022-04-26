@@ -4,4 +4,4 @@
 
 _**Me llamo Juan Cruz Isola y Soy de 4 2 avionica comision b**_
  
-[![separador.png](https://i.postimg.cc/ZK5P8gq5/separador.png)](https://postimg.cc/JtSBmpJf)
+[![Sin-t-tulo-1.png](https://i.postimg.cc/tCcrYyzj/Sin-t-tulo-1.png)](https://postimg.cc/D8qQM9Dj)
