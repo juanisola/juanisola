@@ -1,6 +1,6 @@
 ![github.png](https://i.postimg.cc/J7KLGygB/github.png)
 
--Hola! soy Juan Cruz Isola 
+##Acerca de mi
 
 
 
