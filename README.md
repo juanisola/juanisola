@@ -2,4 +2,4 @@
 
 # About me
 
-_**Me llamo Juan Cruz Isola y Soy de 5 2 avionica comision b**_
+_**Juan Isola, 7 2 Avionica Comision B**_
